@@ -1,4 +1,4 @@
-Bonjour, je suis Jéléna Jade !
+Bonjour, je suis INDASSY-GNAMBAULT Jéléna Jade !
 Étudiante en 1ʳᵉ année de Management des Entreprises et des Organisations à HESTIM Casablanca.
 J’apprends actuellement : le marketing, l’économie, la gestion et les outils numériques.
 Objectif : développer mes compétences en finance, comptabilité et management, et acquérir une première expérience professionnelle.
